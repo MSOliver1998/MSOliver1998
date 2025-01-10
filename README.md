@@ -35,7 +35,7 @@
 * Comunicação
 * Gosto em aprender
 * Ajudar outras pessoas
-* Paciência em lidar com conflitos
+* Habilidade para lidar com conflitos
 
 ## Vamos nos conectar?
 
